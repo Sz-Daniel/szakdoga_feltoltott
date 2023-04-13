@@ -1,0 +1,2 @@
+# szakdoga_feltoltott
+szakdoga_feltoltott
